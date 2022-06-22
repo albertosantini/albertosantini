@@ -15,6 +15,17 @@ torna a casa».
 -- Chandra Livia Candiani
 ```
 
+```
+Cosa non devo fare
+per togliermi di torno
+la mia nemica mente:
+ostilità perenne
+alla felice colpa di esser quel che sono,
+il mio felice niente.
+
+-- Patrizia Cavalli
+```
+
 <!--
 **albertosantini/albertosantini** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
