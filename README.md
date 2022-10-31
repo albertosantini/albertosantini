@@ -1,14 +1,14 @@
 ### Hi there 👋
 
 ```
-Dove ti sei perduta
-da quale dove non torni,
-assediata
-bruci senza origine.
-Questo fuoco
-deve trovare le sue parole
+Dove ti sei perduta                  Cosa non devo fare
+da quale dove non torni,             per togliermi di torno
+assediata                            la mia nemica mente:
+bruci senza origine.                 ostilità perenne
+Questo fuoco                         alla felice colpa di esser quel che sono,
+deve trovare le sue parole           il mio felice niente.
 pronunciare condizioni
-di smarrimento dire:
+di smarrimento dire:                 -- Patrizia Cavalli
 «Sei l’unica me che ho
 torna a casa».
 
@@ -16,14 +16,19 @@ torna a casa».
 ```
 
 ```
-Cosa non devo fare
-per togliermi di torno
-la mia nemica mente:
-ostilità perenne
-alla felice colpa di esser quel che sono,
-il mio felice niente.
+She sat behind the black pieces and said carefully in Russian, 
+"Would you like to play chess?" 
 
--- Patrizia Cavalli
+-- Walter Tevis, The Queen's Gambit, 1983
+```
+
+```
+There's so many different worlds,
+So many different suns.
+And we have just one world,
+But we live in different ones.
+
+-- Dire Straits, Brothers in Arms, 1985
 ```
 
 <!--
